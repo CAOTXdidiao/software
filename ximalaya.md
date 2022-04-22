@@ -3,7 +3,7 @@
 8.3包大一倍。支持安卓12<br>
 6.6。无直播功能。由酷友yasuu更改。8.3支持安卓12.
 
-李跳跳规则
+李跳跳规则<br>
 李跳跳派大星规则，由酷友水之痕花提供。
 {"b":200000,"j":[{"k":"main_iv_close","n":"main_iv_close"},{"k":"main_ad_broadside_close","n":"main_ad_broadside_close"},{"k":"live_iv_bottom_close","n":"live_iv_bottom_close"}],"g":true,"a":1,"h":true}
 
