@@ -55,3 +55,10 @@ https://pan.bilnn.cn/s/Kkn2T9
 由mt论坛二二二姑爷修改<br>
 比邻云盘:<br>
 https://pan.bilnn.cn/s/A47AiD
+
+
+(11)听中国听书<br>
+山寨版喜马拉雅，喜马拉雅付费会员资源都有。<br>
+已去广告和破解会员，mt论坛ID:Android逆向提供的教程。<br>
+安卓12可用。<br>
+https://pan.bilnn.cn/s/aZXdhL
