@@ -59,6 +59,5 @@ https://pan.bilnn.cn/s/A47AiD
 
 (11)听中国听书<br>
 山寨版喜马拉雅，喜马拉雅付费会员资源都有。<br>
-已去广告和破解会员，mt论坛ID:Android逆向提供的教程。<br>
-安卓12可用。<br>
-https://pan.bilnn.cn/s/aZXdhL
+已去广告和破解会员，mt论坛ID:Android逆向……破解
+https://pan.bilnn.cn/s/3dAYFa
