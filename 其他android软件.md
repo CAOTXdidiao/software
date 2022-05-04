@@ -62,3 +62,7 @@ https://pan.bilnn.cn/s/A47AiD
 已去广告和破解会员，由mt论坛ID:Android逆向……破解<br>
 需要自备梯子，不然打开软件，登录账号都费劲<br>
 https://pan.bilnn.cn/s/3dAYFa
+
+(12)谷歌金丝雀
+去升级，v103.0.5034.0
+https://pan.bilnn.cn/s/mKPeHx
