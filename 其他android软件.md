@@ -63,6 +63,6 @@ https://pan.bilnn.cn/s/A47AiD
 需要自备梯子，不然打开软件，登录账号都费劲<br>
 https://pan.bilnn.cn/s/3dAYFa
 
-(12)谷歌金丝雀
-去升级，v103.0.5034.0
+(12)谷歌金丝雀<br>
+去升级，v103.0.5034.0<br>
 https://pan.bilnn.cn/s/mKPeHx
