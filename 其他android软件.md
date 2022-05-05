@@ -2,8 +2,9 @@
 ①魅族文件管理9.0.27：<br>
 主要功能FTP<br>
 去除顶栏下面布局<br>
-百度链接:https://pan.baidu.com/s/1kBD4N0ssKKm1pZBKYvUdwA<br>
-提取码:v694
+去除右上角点击设置按钮<br>
+蓝凑云:https://wwc.lanzoub.com/ioVHe04cpq0d<br>
+
 
 ②bilibili_v5.48.3<br>
 由酷安yasuu修改<br>
