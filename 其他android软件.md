@@ -66,3 +66,8 @@ https://pan.bilnn.cn/s/3dAYFa
 (12)谷歌金丝雀<br>
 去升级，v103.0.5034.0<br>
 https://pan.bilnn.cn/s/mKPeHx
+
+(13)快递100 ↹ 谷歌play版<br>
+由酷安ID心要向阳才能看到光↘修改<br>
+我顺手把应用名改成中文<br>
+https://pan.bilnn.cn/s/o1l5IY
