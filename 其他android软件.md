@@ -51,22 +51,17 @@ https://pan.bilnn.cn/s/b8O1SO
 比邻云盘:<br>
 https://pan.bilnn.cn/s/Kkn2T9
 
-⑩橘子视频<br>
-免vip，启动广告<br>
-比邻云:<br>
-https://pan.bilnn.cn/s/ZBoGTv
 
-
-(11)听中国听书<br>
+⑩听中国听书<br>
 山寨版喜马拉雅，喜马拉雅付费会员资源都有。<br>
 已去广告和破解会员，由mt论坛ID:Android逆向……破解<br>
 需要自备梯子，不然打开软件，登录账号都费劲<br>
 https://pan.bilnn.cn/s/3dAYFa
 
-(12)谷歌金丝雀<br>
+(11)谷歌金丝雀<br>
 去升级，v103.0.5034.0<br>
 https://pan.bilnn.cn/s/mKPeHx
 
-(13)快递100 ↹ 谷歌play版<br>
+(12)快递100 ↹ 谷歌play版<br>
 由酷安ID心要向阳才能看到光↘修改<br>
 https://pan.bilnn.com/s/yWdOuE
