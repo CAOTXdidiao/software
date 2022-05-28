@@ -5,10 +5,10 @@
 蓝凑云:https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 
 
-②bilibili_v5.48.3<br>
-由酷安yasuu修改<br>
-链接:https://pan.baidu.com/s/14T-AOTuBXGAQF9hnKhg_tg
-提取码:7ark 
+②bilibili_v3.10<br>
+国际版，去除搜索栏两处布局<br>
+https://pan.bilnn.cn/s/yB6nCE
+
 
 ③中国联通手机营业厅v8.7<br>
 由蓝色飞扬修改<br>
