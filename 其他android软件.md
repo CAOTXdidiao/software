@@ -5,9 +5,9 @@
 蓝凑云:https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 
 
-②bilibili_v3.10<br>
-国际版，去除搜索栏两处布局<br>
-https://pan.bilnn.cn/s/yB6nCE
+②bilibili_v6.22.5<br>
+自定义首页栏<br>
+https://pan.bilnn.cn/s/7nlOfA
 
 
 ③中国联通手机营业厅v8.7<br>
