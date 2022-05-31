@@ -2,7 +2,8 @@
 主要功能FTP<br>
 去除顶栏下面布局<br>
 去除右上角点击设置按钮<br>
-蓝凑云:https://wwc.lanzoub.com/ioVHe04cpq0d<br>
+https://wwc.lanzoub.com/ioVHe04cpq0d
+密码：fxhc
 
 
 ②bilibili_v6.22.5<br>
