@@ -8,7 +8,8 @@ https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 
 ②bilibili_v6.22.5<br>
 自定义首页栏<br>
-https://pan.bilnn.cn/s/7nlOfA
+更换封面，和替换直播间上面推荐对话框
+https://pan.bilnn.cn/s/YwZ4tW
 
 
 ③中国联通手机营业厅v8.7<br>
