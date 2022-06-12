@@ -56,9 +56,8 @@ https://pan.bilnn.cn/s/Kkn2T9
 
 ⑩听中国听书<br>
 山寨版喜马拉雅，喜马拉雅付费会员资源都有。<br>
-已去广告和破解会员，由mt论坛ID:Android逆向……破解<br>
-需要自备梯子，不然打开软件，登录账号都费劲<br>
-https://pan.bilnn.cn/s/3dAYFa
+已去广告和破解会员
+https://pan.bilnn.cn/s/mg9mix
 
 (11)谷歌金丝雀<br>
 去升级，v103.0.5034.0<br>
