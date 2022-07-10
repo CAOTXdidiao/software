@@ -54,10 +54,8 @@ https://pan.bilnn.cn/s/b8O1SO
 https://pan.bilnn.cn/s/Kkn2T9
 
 
-⑩听中国听书<br>
-山寨版喜马拉雅，喜马拉雅付费会员资源都有。<br>
-已去广告和破解会员
-https://pan.bilnn.cn/s/av8gHL
+⑩gif助手<br>
+https://pan.bilnn.cn/s/ryDpTa
 
 (11)谷歌金丝雀<br>
 去升级，v103.0.5034.0<br>
