@@ -6,10 +6,7 @@ https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 密码：fxhc<br>
 
 
-②bilibili_v6.40<br>
-上面两栏，下面三栏。原来是oppo定制，二改上面两栏，分别是直播和番剧<br>
-替换直播间上面推荐对话框，去掉直播左下角小电视图标，直播间礼物栏<br>
-https://pan.bilnn.cn/s/w2wYUG<br>
+②略
 
 
 ③中国联通手机营业厅v8.7<br>
