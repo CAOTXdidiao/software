@@ -56,9 +56,9 @@ https://pan.bilnn.cn/s/Kkn2T9
 ⑩gif助手<br>
 https://pan.bilnn.cn/s/ryDpTa
 
-(11)谷歌金丝雀<br>
-去升级，v103.0.5034.0<br>
-https://pan.bilnn.cn/s/mKPeHx
+(11)谷歌浏览器<br>
+去升级，v103<br>
+https://pan.bilnn.cn/s/QX5Jtx
 
 (12)快递100 ↹ 谷歌play版<br>
 由酷安ID心要向阳才能看到光↘修改<br>
