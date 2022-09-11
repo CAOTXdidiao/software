@@ -16,12 +16,9 @@ https://pan.bilnn.cn/s/JpN7UM
 链接:https://pan.baidu.com/s/1Cec7aW2C6o66AD9mxHV9XQ 
 提取码:i1q4
 
-④我的听书_v2.2.4<br>
-李跳跳跳过升级码<br>
+④天天听书_v2.0.2<br>
 
-{"e":["main_count_down_layout"],"j":[{"k":"发现新版本","n":"忽略当前更新"}],"h":true,"g":true}
-
-链接:https://pan.baidu.com/s/1iqQCiz5uiKU8iAK9a86eUg 提取码:6k4b 
+链接:https://pan.bilnn.cn/s/nMJquv
 
 ⑤酷狗概念版_v2.4.2<br>
 免费蹭vip，精简首页一处布局。精简搜索栏一处布局<br>
