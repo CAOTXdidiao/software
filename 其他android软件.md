@@ -16,9 +16,9 @@ https://pan.bilnn.cn/s/JpN7UM
 链接:https://pan.baidu.com/s/1Cec7aW2C6o66AD9mxHV9XQ 
 提取码:i1q4
 
-④天天听书_v2.0.2<br>
-
-链接:https://pan.bilnn.cn/s/nMJquv
+④我的听书_v2.2.4<br>
+听书源：https://cdn.jsdelivr.net/gh/eprendre/tingshu_resources/TingShuSources/external_sources.json
+链接:https://pan.bilnn.cn/s/lbbrFM
 
 ⑤酷狗概念版_v2.4.2<br>
 免费蹭vip，精简首页一处布局。精简搜索栏一处布局<br>
