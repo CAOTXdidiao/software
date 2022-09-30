@@ -17,7 +17,7 @@ https://pan.bilnn.cn/s/JpN7UM
 提取码:i1q4
 
 ④我的听书_v2.2.4<br>
-听书源：https://cdn.jsdelivr.net/gh/eprendre/tingshu_resources/TingShuSources/external_sources.json
+听书源：https://cdn.jsdelivr.net/gh/eprendre/tingshu_resources/TingShuSources/external_sources.json<br>
 链接:https://pan.bilnn.cn/s/lbbrFM
 
 ⑤酷狗概念版_v2.4.2<br>
