@@ -8,6 +8,8 @@ https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 
 ②qq_8.8.9<br>
 尽量改进了一下上面的ad，也不知道成功没有(>﹏<)<br>
+QQ邮箱，我找半天没找到，不知道被作者阉割下去了，还是怎样。<br>
+可以用手机自带邮箱绑定QQ邮箱<br>
 https://pan.bilnn.cn/s/zDXnIv
 
 
