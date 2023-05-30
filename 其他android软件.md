@@ -4,10 +4,10 @@
 去除右上角点击设置按钮<br>
 https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 密码：fxhc < br >
-https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA的
+https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA<>
 的
-
-②qq_8.8.9<br>
+的
+②qq_8.8.9 <br> _ _
 尽量改进了一下上面的ad，也不知道成功没有(>﹏<)<br>
 QQ邮箱，我找半天没找到，不知道被作者阉割下去了，还是怎样。<br>
 可以用手机自带邮箱绑定QQ邮箱<br>
