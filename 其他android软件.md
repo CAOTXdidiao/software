@@ -3,8 +3,9 @@
 去除顶栏下面布局<br>
 去除右上角点击设置按钮<br>
 https://wwc.lanzoub.com/ioVHe04cpq0d<br>
-密码：fxhc<br>
-
+密码：fxhc < br >
+https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA的
+的
 
 ②qq_8.8.9<br>
 尽量改进了一下上面的ad，也不知道成功没有(>﹏<)<br>
