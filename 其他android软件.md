@@ -21,10 +21,9 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 链接:https://pan.baidu.com/s/1uzSvpX0Pu9uNYfhmrqr9mA<br>
 提取码:oc4m 
 
-⑥酷安_11.2.4<br>
-不知道哪个大佬看不下去搞的<br>
-链接:https://pan.baidu.com/s/133ohN75OgSEKh_wJT-L_cA<br>
-提取码:2dc9 
+⑥百度地图小米定制版<br>
+链接:https://www.jianguoyun.com/p/DcZOAoIQ8KrVCxirhbAFIAA<br>
+
 
 ⑦微软TTS<br>
 接近真人发音的语音引擎，配合阅读app使用。需要自备梯子(里面两个版本)。<br>
