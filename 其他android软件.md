@@ -52,6 +52,6 @@ https://pan.bilnn.cn/s/ryDpTa
 去升级，v103<br>
 https://pan.bilnn.cn/s/QX5Jtx
 
-（13）iqoo百度输入法定制版_8.5.203.2007 ～支持安卓13 <br>
+（12）iqoo百度输入法定制版_8.5.203.2007 ～支持安卓13 <br>
 
 https://www.jianguoyun.com/p/DQuZlnIQ8KrVCxi5lMUFIAA
