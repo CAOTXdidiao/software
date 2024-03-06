@@ -55,3 +55,6 @@ https://pan.bilnn.cn/s/QX5Jtx
 （12）iqoo百度输入法定制版_8.5.203.2007 ～支持安卓13 <br>
 
 https://www.jianguoyun.com/p/DQuZlnIQ8KrVCxi5lMUFIAA
+
+(13)QQ_v8.9.83<br>
+https://www.jianguoyun.com/p/DXei-FsQ8KrVCxi-lMUFIAA
