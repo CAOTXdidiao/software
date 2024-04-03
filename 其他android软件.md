@@ -36,13 +36,9 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 比邻云盘:<br>
 https://pan.bilnn.cn/s/b8O1SO
 
-⑨有道云笔记7.2.12<br>
-开启界面由于没有最新版动画，可以快点。我发现这个版本行距也比最新版小点。<br>
-缺点:写笔记的时候，插图功能有时候加载不出来。<br>
-手机和pc网页版都有。生态比较不错。记得要qq号注册再绑定手机号。这样网页版可以记住账号信息。不需要下次二次登录。<br>
-酷安明风沐雨修改。<br>
-比邻云盘:<br>
-https://pan.bilnn.cn/s/Kkn2T9
+⑨有道云笔记<br>
+夸克云盘:<br>
+链接：https://pan.quark.cn/s/93c75ef8c99f
 
 
 ⑩gif助手<br>
