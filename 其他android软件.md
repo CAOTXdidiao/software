@@ -31,10 +31,9 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 密码：b6t4
 
 ⑧日历<br>
-真就是个纯粹的日历，大小4.6M,兼容性应该好点。<br>
-图标改成黑色背景(能在oled屏省点电🤪🤪🤪?)<br>
-比邻云盘:<br>
-https://pan.bilnn.cn/s/b8O1SO
+小日历<br>
+<br>
+http://1035063474.tpddns.cn:5000/sharing/HyfTSXQp4
 
 ⑨有道云笔记<br>
 夸克云盘:<br>
