@@ -22,7 +22,7 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 提取码:oc4m 
 
 ⑥百度地图小米定制版<br>
-链接:https://www.jianguoyun.com/p/DcZOAoIQ8KrVCxirhbAFIAA<br>
+链接:http://1035063474.tpddns.cn:5000/sharing/cBOoS2LFL<br>
 
 
 ⑦微软TTS<br>
