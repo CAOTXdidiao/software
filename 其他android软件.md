@@ -21,7 +21,7 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 链接:https://pan.baidu.com/s/1uzSvpX0Pu9uNYfhmrqr9mA<br>
 提取码:oc4m 
 
-⑥百度地图小米定制版<br>
+⑥百度地图vivo x100定制版<br>
 链接:http://1035063474.tpddns.cn:5000/sharing/cBOoS2LFL<br>
 
 
