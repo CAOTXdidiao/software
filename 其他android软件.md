@@ -25,10 +25,12 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 链接:http://1035063474.tpddns.cn:5000/sharing/cBOoS2LFL<br>
 
 
-⑦微软TTS<br>
-接近真人发音的语音引擎，配合阅读app使用。需要自备梯子(里面两个版本)。<br>
-蓝凑云：https://wwc.lanzoub.com/b0ay65zde<br>
-密码：b6t4
+⑦MultiTTS<br>
+可以多人ai智能读小说，包含AI语音包下载<br>
+和彩云：链接:  https://caiyun.139.com/m/i?2iDhKkcXUNVnu
+提取码:  a331
+/*n93nPW6bDMQU:/ 
+复制本段信息，打开「中国移动云盘APP」获取。人人不限速，移动用户免流量！
 
 ⑧日历<br>
 小日历<br>
@@ -51,5 +53,4 @@ https://pan.bilnn.cn/s/QX5Jtx
 
 https://www.jianguoyun.com/p/DQuZlnIQ8KrVCxi5lMUFIAA
 
-(13)QQ_v8.9.83<br>
-https://www.jianguoyun.com/p/DXei-FsQ8KrVCxi-lMUFIAA
+
