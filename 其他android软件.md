@@ -22,7 +22,10 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 提取码:oc4m 
 
 ⑥百度地图vivo x100定制版<br>
-链接:http://1035063474.tpddns.cn:5000/sharing/cBOoS2LFL<br>
+链接:链接:  https://caiyun.139.com/m/i?2iDhJJafR0dqv
+提取码:  sd3g
+/*993nPJJmEAvs:/ 
+复制本段信息，打开「中国移动云盘APP」获取。人人不限速，移动用户免流量！<br>
 
 
 ⑦MultiTTS<br>
