@@ -45,8 +45,8 @@ http://1035063474.tpddns.cn:5000/sharing/HyfTSXQp4
 复制本段信息，打开「中国移动云盘APP」获取。人人不限速，移动用户免流量！
 
 
-⑩gif助手<br>
-https://pan.bilnn.cn/s/ryDpTa
+⑩高德地图<br>
+https://1drv.ms/u/c/10044e4aed4c7d6f/EVgu6yiQpQJFoPU-2czfnzcBMpMUuL7C7KISVX7BpgPGYw
 
 (11)谷歌浏览器<br>
 去升级，v103<br>
