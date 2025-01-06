@@ -48,9 +48,8 @@ http://1035063474.tpddns.cn:5000/sharing/HyfTSXQp4
 ⑩高德地图<br>
 https://1drv.ms/u/c/10044e4aed4c7d6f/EVgu6yiQpQJFoPU-2czfnzcBMpMUuL7C7KISVX7BpgPGYw
 
-(11)谷歌浏览器<br>
-去升级，v103<br>
-https://pan.bilnn.cn/s/QX5Jtx
+(11)椒盐音乐<br>
+https://1drv.ms/u/c/10044e4aed4c7d6f/EW99TO1KTgQggBB7AAAAAAABEW6gSuQq0mEIdgjJgibtSA
 
 （12）iqoo百度输入法定制版_8.5.203.2007 ～支持安卓13 <br>
 
