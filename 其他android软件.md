@@ -21,11 +21,8 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 链接:https://pan.baidu.com/s/1uzSvpX0Pu9uNYfhmrqr9mA<br>
 提取码:oc4m 
 
-⑥百度地图vivo x100定制版<br>
-链接:链接:  https://caiyun.139.com/m/i?2iDhJJafR0dqv
-提取码:  sd3g
-/*993nPJJmEAvs:/ 
-复制本段信息，打开「中国移动云盘APP」获取。人人不限速，移动用户免流量！<br>
+⑥酷安<br>
+https://1drv.ms/u/c/10044e4aed4c7d6f/ESrI4cLRGaBJuNHRoz8aVI0BPs7yFW30bfyiPx0bX215Yg<br>
 
 
 ⑦MultiTTS<br>
