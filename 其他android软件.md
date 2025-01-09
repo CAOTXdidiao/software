@@ -51,8 +51,8 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/EVgu6yiQpQJFoPU-2czfnzcBMpMUuL7C7KISVX7BpgP
 (11)椒盐音乐<br>
 https://1drv.ms/u/c/10044e4aed4c7d6f/EW99TO1KTgQggBB7AAAAAAABEW6gSuQq0mEIdgjJgibtSA
 
-（12）iqoo百度输入法定制版_8.5.203.2007 ～支持安卓13 <br>
+（12）iqoo百度输入法定制版_8.5.204.983 ～支持安卓13 <br>
 
-https://www.jianguoyun.com/p/DQuZlnIQ8KrVCxi5lMUFIAA
+https://1drv.ms/u/c/10044e4aed4c7d6f/EUENOAQ408pAiZaJ7dD2iwwBppiuubOHVWD0Bn39nxaJcQ
 
 
