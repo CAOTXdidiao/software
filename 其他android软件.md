@@ -6,6 +6,10 @@ https://wwc.lanzoub.com/ioVHe04cpq0d<br>
 密码：fxhc < br >
 https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br> 
 
+②微博v15.5.0  <br> 
+带微博猪手<br>
+https://1drv.ms/u/c/10044e4aed4c7d6f/EctEQlmsLbJKi4v4-clXcNEBe0d92WjrH0zohpEkSNM6Ag
+<br>
 
 ③中国联通手机营业厅v8.7<br>
 由蓝色飞扬修改<br>
