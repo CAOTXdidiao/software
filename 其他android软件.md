@@ -10,6 +10,7 @@ https://www.jianguoyun.com/p/DToJFwIQ8KrVCxiu0ogFIAA  <br>
 带微博猪手<br>
 https://1drv.ms/u/c/10044e4aed4c7d6f/EctEQlmsLbJKi4v4-clXcNEBe0d92WjrH0zohpEkSNM6Ag
 <br>
+复制这段内容后打开天翼云盘手机App，操作更方便哦！链接：https://cloud.189.cn/t/veUrIzFviame（访问码：el7t）
 
 ③中国联通手机营业厅v8.7<br>
 由蓝色飞扬修改<br>
