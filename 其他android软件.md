@@ -19,7 +19,7 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/EctEQlmsLbJKi4v4-clXcNEBe0d92WjrH0zohpEkSNM
 
 ④我的听书_v2.2.4<br>
 听书源：https://cdn.jsdelivr.net/gh/eprendre/tingshu_resources/TingShuSources/external_sources.json<br>
-链接:https://pan.bilnn.cn/s/lbbrFM
+链接:#
 
 ⑤酷狗概念版_v2.4.2<br>
 免费蹭vip，精简首页一处布局。精简搜索栏一处布局<br>
@@ -40,7 +40,7 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/ESrI4cLRGaBJuNHRoz8aVI0BPs7yFW30bfyiPx0bX21
 ⑧日历<br>
 小日历<br>
 <br>
-http://1035063474.tpddns.cn:5000/sharing/HyfTSXQp4
+http://1035063474.asia:5000/sharing/HbGgHWceg
 
 ⑨有道云笔记<br>
 移动云盘:<br>
@@ -55,6 +55,8 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/EVgu6yiQpQJFoPU-2czfnzcBMpMUuL7C7KISVX7BpgP
 
 (11)椒盐音乐<br>
 https://1drv.ms/u/c/10044e4aed4c7d6f/EW99TO1KTgQggBB7AAAAAAABEW6gSuQq0mEIdgjJgibtSA
+<br>nas：
+http://1035063474.asia:5000/sharing/YtC5zJzq7
 
 （12）iqoo百度输入法定制版_8.5.204.983 ～支持安卓13 <br>
 
