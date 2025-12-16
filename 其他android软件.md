@@ -54,7 +54,7 @@ http://1035063474.asia:5000/sharing/HbGgHWceg
 ⑩椒盐音乐<br>
 https://1drv.ms/u/c/10044e4aed4c7d6f/EW99TO1KTgQggBB7AAAAAAABEW6gSuQq0mEIdgjJgibtSA
 <br>nas：
-http://1035063474.asia:5000/sharing/YtC5zJzq7
+飞牛分享【椒盐音乐.apk】，点击链接下载文件，App打开可转存到NAS：http://1035063474.asia:8000/s/e26941aec2634f70a3
 
 （11）iqoo百度输入法定制版_8.5.204.983 ～支持安卓13 <br>
 
@@ -67,3 +67,10 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/EVgu6yiQpQJFoPU-2czfnzcBMpMUuL7C7KISVX7BpgP
 （13）百度地图<br>
 提取码：4LFp ,我正通过联通云盘分享文件给您，点击下面的链接，获取文件。
 链接：https://pan.wo.cn/s/1X1R4C38403 
+
+（14）Kototoro_漫画聚合<br>
+
+我用【联通云盘】给你分享了 Kototoro-0.0.5-release.apk 等 1 个文件
+https://pan.wo.cn/s/1z1F4q64194
+/~T5Jnsb9wtOsC~:/
+点击文件链接或复制整段内容，打开「联通云盘APP」即可获取。
