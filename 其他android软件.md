@@ -53,8 +53,7 @@ http://1035063474.asia:5000/sharing/HbGgHWceg
 
 ⑩椒盐音乐<br>
 https://1drv.ms/u/c/10044e4aed4c7d6f/EW99TO1KTgQggBB7AAAAAAABEW6gSuQq0mEIdgjJgibtSA
-<br>nas：
-飞牛分享【椒盐音乐.apk】，点击链接下载文件，App打开可转存到NAS：http://1035063474.asia:8000/s/e26941aec2634f70a3
+<br>
 
 （11）iqoo百度输入法定制版_8.5.204.983 ～支持安卓13 <br>
 
