@@ -73,3 +73,11 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/EVgu6yiQpQJFoPU-2czfnzcBMpMUuL7C7KISVX7BpgP
 https://pan.wo.cn/s/1z1F4q64194
 /~T5Jnsb9wtOsC~:/
 点击文件链接或复制整段内容，打开「联通云盘APP」即可获取。
+
+（15）小米计算器_透明版<br>
+
+飞牛分享【小米计算器透明.apk】，点击链接下载文件，App打开可转存到NAS：http://1252526480.asia:15143/s/8c663a17ff624bbcaa<br>
+我用【联通云盘】给你分享了 小米计算器透明.apk 等 1 个文件
+https://pan.wo.cn/s/1Z1t5P44256
+/~Heh0e7nxwpgV~:/
+点击文件链接或复制整段内容，打开「联通云盘APP」即可获取。
