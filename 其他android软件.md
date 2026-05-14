@@ -42,7 +42,7 @@ https://1drv.ms/u/c/10044e4aed4c7d6f/ESrI4cLRGaBJuNHRoz8aVI0BPs7yFW30bfyiPx0bX21
 ⑧日历<br>
 小日历<br>
 <br>
-http://1035063474.asia:5000/sharing/HbGgHWceg
+飞牛分享【小日历_1.0.1.apk】，点击链接下载文件，App打开可转存到NAS：http://1252526480.asia:15143/s/903c638201154954ad
 
 ⑨有道云笔记<br>
 移动云盘:<br>
